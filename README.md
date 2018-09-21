@@ -1,0 +1,2 @@
+# SZQD
+Personal company
